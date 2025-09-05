@@ -1,1 +1,0 @@
-# m2-hw2-cueto-aida
